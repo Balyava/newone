@@ -1,1 +1,2 @@
 # newone
+I love ☕ 🍕 and 💃.
